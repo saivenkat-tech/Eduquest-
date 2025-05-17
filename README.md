@@ -1,2 +1,0 @@
-# Eduquest-
-Education with adventure
